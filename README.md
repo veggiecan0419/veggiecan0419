@@ -1,3 +1,5 @@
+## Staying neutral on a topic does NOT mean promoting it!!!
+
 <!--
 **veggiecan0419/veggiecan0419** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
